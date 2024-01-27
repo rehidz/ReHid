@@ -5,4 +5,4 @@ https://rshidertools.sellpass.io/products/RS-Hider
 
 *Please be advised that we do not endorse, promote, or encourage the use of this program for gaining unfair advantages in video games. We strongly discourage any misuse that goes against fair play principles.*
 
-![alt text]([http://url/to/img.png](https://imagedelivery.net/A5gbiev6F8AaBvp6M146Kw/09badd48-b7de-4fab-c499-2170177d6200/productCard)https://imagedelivery.net/A5gbiev6F8AaBvp6M146Kw/09badd48-b7de-4fab-c499-2170177d6200/productCard)
+![alt text](https://imagedelivery.net/A5gbiev6F8AaBvp6M146Kw/09badd48-b7de-4fab-c499-2170177d6200/productCard)
